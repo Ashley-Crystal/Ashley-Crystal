@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ashley-Crystal
+- 👀 I’m interested in Coding, Web and App Development, Cybersecuirty, AIML
+- 🌱 I’m currently learning C, Python
+- 💞️ Willing to Collaborate
+- 📫 How to reach me - DM- @ash_crys [instagram]
